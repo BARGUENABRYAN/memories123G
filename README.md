@@ -1,1 +1,3 @@
-# memories123G
+
+# Lorena, João Davantel, Vinicius, Bryan
+# Nossas memorias 
